@@ -1,0 +1,1 @@
+# Project-FORESIGHT-AI-Powered-Demand-Inventory-Intelligence-Platform
